@@ -21,7 +21,7 @@ Você está antenado nas últimas atualizações do querido planeta Terra? Não?
     
 # Diferença número 2
 <p>Os kiwis (<i>Actinidia</i>) são muito silenciosos se comparados aos kiwis (<i>Apteryx</i>). Talvez isso se dê pelo fato de que os kiwis (<i>Apteryx</i>) sejam responsáveis pelos ovos mais desproporcionais da natureza comparados a seu tamanho (chegam até a 20% de sua massa corporal). A produção dele se dá em cerca de 30 dias na fêmea, que passa por um grande estresse fisiológico, seguido de um período de incubação de 63 a 90 dias feito pelo macho. A gema desse ovo, quando convertida no saco vitelino após o nascimento, garante comida por 10 dias ao filhote e dá essa segurança a ele antes de sair por aí para viver aventuras. O kiwi (<i>Actinidia</i>), por sua vez, tem sementes proporcionais a seu tamanho e que costumam germinar dentre 12 a 40 dias.
-Ouça um kiwi (<i>Apteryx</i>) <a href="https://www.youtube.com/watch?v=O5tk4Iw16DI">aqui!</a>
+Ouça um kiwi (<i>Apteryx</i>) <a href="https://www.youtube.com/watch?v=O5tk4Iw16DI">aqui!</a></p>
 <img src="https://ik.imagekit.io/x5s4extzn/kiwi_ovo.jpg?updatedAt=1685165298585">
 
     
