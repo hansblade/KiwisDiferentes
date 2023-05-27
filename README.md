@@ -20,14 +20,14 @@ Você está antenado nas últimas atualizações do querido planeta Terra? Não?
 <img src="https://ik.imagekit.io/x5s4extzn/Filhote-de-kiwi.jpg?updatedAt=1685165298335">
     
 # Diferença número 2
-<p>Os kiwis (<i>Actinidia</i>) são muito silenciosos se comparados aos kiwis (<i>Apteryx</i>). Talvez isso se dê pelo fato de que os kiwis (<i>Apteryx</i>) sejam responsáveis pelos ovos mais desproporcionais da natureza comparados a seu tamanho (chegam até a 20% de sua massa corporal). A produção dele se dá em cerca de 30 dias na fêmea, que passa por um grande estresse fisiológico, seguido de um período de incubação de 63 a 90 dias feito pelo macho. A gema desse ovo, quando convertida no saco vitelino após o nascimento, garante comida por 10 dias ao filhote e dá essa segurança a ele antes de sair por aí para viver aventuras. O kiwi (<i>Actinidia</i>), por sua vez, tem sementes proporcionais a seu tamanho e que costumam germinar dentre 12 a 40 dias.
-Ouça um kiwi (<i>Apteryx</i>) [aqui](https://www.youtube.com/watch?v=O5tk4Iw16DI)</p>
+<p>Os kiwis (<i>Actinidia</i>) são muito silenciosos se comparados aos kiwis (<i>Apteryx</i>). Talvez isso se dê pelo fato de que os kiwis (<i>Apteryx</i>) sejam responsáveis pelos ovos mais desproporcionais da natureza comparados a seu tamanho (chegam até a 20% de sua massa corporal). A produção dele se dá em cerca de 30 dias na fêmea, que passa por um grande estresse fisiológico, seguido de um período de incubação de 63 a 90 dias feito pelo macho. A gema desse ovo, quando convertida no saco vitelino após o nascimento, garante comida por 10 dias ao filhote e dá essa segurança a ele antes de sair por aí para viver aventuras. O kiwi (<i>Actinidia</i>), por sua vez, tem sementes proporcionais a seu tamanho e que costumam germinar dentre 12 a 40 dias.</p>
 <img src="https://ik.imagekit.io/x5s4extzn/kiwi_ovo.jpg?updatedAt=1685165298585">
+Ouça um kiwi (<i>Apteryx</i>) [aqui](https://www.youtube.com/watch?v=O5tk4Iw16DI)
     
 # Diferença número 1
 <p>Para todos aqueles que leram até aqui, espero que essa informação, mais difícil de digerir do que o restante, seja de grande valor e utilidade. O kiwi (<i>Actinidia</i>) é uma <b>fruta</b> e o kiwi (<i>Apteryx</i>) é um <b>animal</b>. Espero que isso esclareça todas as dúvidas e fixe em sua mente a principal diferença entre os kiwis da Terra.</p>
 <img src="https://ik.imagekit.io/x5s4extzn/Kiwi_diferente.jpg?updatedAt=1685165297711">
    
 # Ajude os kiwis!
-<p>Sentiu vontade de saber mais ou ajudar os kiwis? Para isso basta clicar [aqui!](https://savethekiwi.nz/)</p>
+Sentiu vontade de saber mais ou ajudar os kiwis? Para isso basta clicar [aqui!](https://savethekiwi.nz/)
     
