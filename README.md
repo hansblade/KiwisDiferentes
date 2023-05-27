@@ -1,5 +1,5 @@
 <h1 align="center">Top 6 diferenças entre kiwis</h1>
-    ###Você está antenado nas últimas atualizações do querido planeta Terra? Não? Então se ligue nas informações quentinhas!</h2>
+    ### Você está antenado nas últimas atualizações do querido planeta Terra? Não? Então se ligue nas informações quentinhas!
     <img src="./src/kiwi_kiwi.jpg">
 # Diferença número 6
 ## Os kiwis (<i>Apteryx</i>) são seres que só podem ser encontrados na Nova Zelândia. Dito isso, pode-se imaginar que sua existência esteja em constante risco, diferente do outro kiwi (<i>Actinidia</i>) que, apesar de ser originário da China, é plantado em diversos cantos do planeta, desde as montanhas do sudeste chinês aos terrenos de Campos de Jordão.
